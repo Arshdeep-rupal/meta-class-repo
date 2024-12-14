@@ -1,4 +1,4 @@
 Arshdeep Singh
-India
+Rajasthan,India
 Aspirant IOS developer
 
